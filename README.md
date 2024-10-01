@@ -16,3 +16,7 @@ I possess advanced English communication skills, enabling me to collaborate flue
 Throughout my career, I have gained experience in team management and collaboration, leading projects in dynamic environments. These experiences have strengthened my leadership abilities, active listening, and effective problem-solving in multidisciplinary teams.
 
 I am motivated to apply my technical knowledge and skills in roles involving machine learning, data analysis, and data engineering, contributing to the success of projects with a mindset of continuous learning and growth.
+
+[LinkedIn](https://www.linkedin.com/in/coriagabriel/)
+
+coria.gabriel@hotmail.com
