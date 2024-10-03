@@ -1,4 +1,4 @@
-# A little review about me 👋
+# A sneak peak about me 👋
 
 ---
 
