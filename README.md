@@ -1,4 +1,4 @@
-# A little rewiev about me 👋
+# A little review about me 👋
 
 ---
 
