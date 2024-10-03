@@ -1,4 +1,4 @@
-# A sneak peak about me 👋
+# Sneak peak about me 👋
 
 ---
 
